@@ -1,0 +1,2 @@
+# igdesign.jp
+LenisLCCのIG-designのLP
